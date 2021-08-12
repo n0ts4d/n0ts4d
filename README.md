@@ -1,5 +1,5 @@
 - 👋 Hi, I’m NotSAD
 - 👀 I’m interested in fucking your mother
 - 🌱 I’m currently learning how to live with not being sad
-- 💞️ I’m looking to collaborate on thugger/sex
-- 📫 How to reach me telegram.me/n0ts4d
+- 💞️ I’m looking to collaborate on sex
+- 📫 How to reach me telegram.me/n0ts4d/
