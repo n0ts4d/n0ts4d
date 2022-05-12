@@ -1,5 +1,5 @@
-- 👋 Hi, I’m NotSAD
-- 👀 I’m interested in smokin'
-- 🌱 I’m currently learning how to live with demons
-- 💞️ I’m looking to collaborate on opium gang
-- 📫 How to reach me telegram.me/n0ts4d/
+- 👋 Hi, I’m purya
+- 👀 I’m interested in living
+- 🌱 I’m currently learning how to deal with unsolvable problems
+- 💞️ I’m looking to collaborate on shisoka
+- 📫 How to reach me telegram.me/bctheinternet/
